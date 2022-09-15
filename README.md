@@ -1,6 +1,8 @@
 **start-strovertz** 
 
 ```
-Gleison Antonio Pires da Silva
-Sistemas de Informação
+Atividade 1: https://jamboard.google.com/d/1H7elDSmEpOprsJa13RRFsFdi6nnWlNucaUocDRBUFG8/edit?usp=sharing
+
+Anderson e Gleison
+
 ```
